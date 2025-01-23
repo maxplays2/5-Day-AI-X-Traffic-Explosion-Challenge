@@ -9,15 +9,15 @@
 - You'll have time to catch up, but don't wait too long - these recordings won't stay up forever. (Remember: live attendance is required to receive the AI Reply Agent engine software.)
 
 ## Let's Add This Up:
-✓ Day 1: Traffic Hijack Blueprint
-✓ Day 2: AI Army Deployment
-✓ Day 3: Advanced AI Persona Mastery
-✓ Day 4: 80% Cost Reduction Protocol
-✓ Day 5: Traffic Monetization Matrix
-✓ BONUS #1: AI Agent Swipe File (Should be: $497)
-✓ BONUS #2: Traffic Multiplier Toolkit (Should be: $397)
-✓ BONUS #3: Stealth Scale Protocol (Should be: $697)
-✓ BONUS #4: Complete AI Reply Agent Engine Software (PRICELESS - For Live Attendees Only!)
+- ✓ Day 1: Traffic Hijack Blueprint
+- ✓ Day 2: AI Army Deployment
+- ✓ Day 3: Advanced AI Persona Mastery
+- ✓ Day 4: 80% Cost Reduction Protocol
+- ✓ Day 5: Traffic Monetization Matrix
+- ✓ BONUS #1: AI Agent Swipe File (Should be: $497)
+- ✓ BONUS #2: Traffic Multiplier Toolkit (Should be: $397)
+- ✓ BONUS #3: Stealth Scale Protocol (Should be: $697)
+- ✓ BONUS #4: Complete AI Reply Agent Engine Software (PRICELESS - For Live Attendees Only!)
 
 TOTAL SHOULD BE VALUE: $1,591 + PRICELESS SOFTWARE
 
